@@ -1,1 +1,10 @@
 # snack-squad
+google developer profile link
+  Heenu        https://g.dev/heenukilbert
+  Jenisha      https://g.dev/Jenishajustin 
+  Hanisha      https://g.dev/Hanishaselvaraj 
+  Feliga       https://g.dev/feligaxavier 
+
+
+ 
+  
